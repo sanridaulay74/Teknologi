@@ -1,0 +1,2 @@
+# Teknologi
+Okay
